@@ -1,1 +1,3 @@
 # lab-questions
+THEERTHA K P
+DEPARTMENT OF PHYSICS
